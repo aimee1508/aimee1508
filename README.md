@@ -4,3 +4,4 @@ Meu nome é Aimee Consoni
 •sou estudante
 •Utilizo este app para organização e compartilhamento dos meus projetos desenvolvidos
 VOCE PODE ENTRAR EM CONTATO COMIGO;)
+aimee.consoni1508@hotmail.com
